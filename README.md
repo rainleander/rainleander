@@ -4,7 +4,7 @@
 * My core values are compassion, honesty, and open-mindedness.
 * I identify as non-binary; my pronouns are they / them.
 * I grew up / lived in thirteen states in the US before moving to the Netherlands with my Swedish partner nine years ago.
-* I am a native English speaker, am very comfortable with Dutch and understand some Japanese, Swedish, Spanish, and German.
+* I am a native English speaker, am comfortable with Dutch and understand some Japanese, Swedish, Spanish, and German.
 * I have an undergraduate degree in dance and a graduate degree in information technology. 
 * I had an entire dance career specializing in contemporary, modern, and butoh with my own company and plenty of collaboration, touring, and performance.
 * I have disappeared into a box stuffed with swords. And a pike.
