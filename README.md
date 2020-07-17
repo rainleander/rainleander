@@ -2,7 +2,7 @@
 
 * My core principles are to embrace radical transparency and fail often.
 * My core values are compassion, honesty, and open-mindedness.
-* I identify as non-binary; my pronouns are they / them.
+* I identify as non-binary - my pronouns are they / them.
 * I grew up / lived in thirteen states in the US before moving to the Netherlands with my Swedish partner nine years ago.
 * I am a native English speaker, am comfortable with Dutch and understand some Japanese, Swedish, Spanish, and German.
 * I have an undergraduate degree in dance and a graduate degree in information technology. 
