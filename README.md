@@ -9,4 +9,4 @@
 * I have an undergraduate degree in dance and a graduate degree in information technology. 
 * I had an entire dance career specializing in contemporary, modern, and butoh with my own company and plenty of collaboration, touring, and performance.
 * I have disappeared into a box stuffed with swords. And a pike.
-* My partner and I have three children - Arthur (5), Linnea (2) and Georg (2) - and one cat, Zoe (14).
+* My partner and I have three children - Arthur (6), Linnea (3) and Georg (3) - and one cat, Zoe (15).
