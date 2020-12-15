@@ -11,4 +11,3 @@
 * I have disappeared into a box stuffed with swords. And a pike.
 * I'm currently figuring out how to live at the intersection of compassion and growth - something to do with awareness, knowledge, and experience. I'll let you know.
 * My partner and I have three children - Arthur (6), Linnea (3) and Georg (3) - and one cat, Zoe (15).
-* And I'm totally jammin' on the new GitHub dark mode.
