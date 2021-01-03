@@ -10,4 +10,4 @@
 * I had an entire dance career specializing in contemporary, modern, and butoh with my own company and plenty of collaboration, touring, and performance.
 * I have disappeared into a box stuffed with swords. And a pike.
 * I'm figuring out how to navigate the intersection of compassion and growth - something to do with awareness, knowledge, and experience.
-* My partner and I have three children - Arthur (6), Linnea (3) and Georg (3) - and one cat, Zoe (15).
+* My partner and I have three children - Arthur (6), Linnea (3) and Georg (3) - and one cat, Zoe (16).
