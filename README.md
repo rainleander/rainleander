@@ -10,4 +10,5 @@
 * I had an entire dance career specializing in contemporary, modern, and butoh with my own company and plenty of collaboration, touring, and performance.
 * I have disappeared into a box stuffed with swords. And a pike.
 * I'm figuring out how to navigate the intersection of compassion and growth - something to do with awareness, knowledge, and experience.
+* I'm also figuring out how to be less angry - something to do with frustration, compassion, breathing, and daily green flips.
 * My partner and I have three children - First Minion (7), Girl Twin (4) and Boy Twin (4).
