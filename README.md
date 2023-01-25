@@ -1,6 +1,6 @@
 # User Manual
 
-* My passion right now is The Farmer Project, a massive undertaking to become outstanding in my fields - https://rainleander.github.io/ is where I keep track of the progress of it and Wake Up Beauty It's Time To Beast, Other People's Computers, and Speak Softly / Carry a Big Stick - four projects that will probably last the next three years. Or so.
+* My passion right now is The Farmer Project, a massive undertaking to become outstanding in my fields - https://rainleander.github.io/ is where I keep track of the progress of it and Wake Up Beauty It's Time To Beast, Other People's Computers, Speak Softly / Carry a Big Stick, and A Penny Earned - five projects that will probably last the next three years. Or so.
 * My core principles are to embrace radical transparency and fail often; while I sometimes struggle with one, I'm rather successful with the other.
 * My core values are compassion, honesty, and open-mindedness.
 * I identify as a pansexual non-binary trans feminine queer person; my pronouns are they / them.
