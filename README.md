@@ -11,4 +11,4 @@
 * I have disappeared into a box stuffed with swords. And a pike.
 * I'm figuring out how to navigate the intersection of compassion and growth - something to do with awareness, knowledge, and experience.
 * I'm also figuring out how to be less angry - something to do with frustration, compassion, breathing, and daily green flips.
-* I have three children - First Minion (9), Girl Twin (6) and Boy Twin (6).
+* I have three children - First Minion (10), Girl Twin (7) and Boy Twin (7).
