@@ -7,8 +7,8 @@
 * I grew up / lived in thirteen states in the US before moving to the Netherlands for ten years. And then I moved back. 
 * I am a native English speaker, am comfortable with Dutch and understand some Japanese, Swedish, Spanish, and German.
 * I have an undergraduate degree in dance and a graduate degree in information technology. 
-* I had an entire dance career specializing in contemporary, modern, and butoh with my own company and plenty of collaboration, touring, and performance.
+* I had an entire dance career specializing in contemporary, modern, and butoh with my own company and lots of collaboration, touring, and performance.
 * I have disappeared into a box stuffed with swords. And a pike.
 * I'm figuring out how to navigate the intersection of compassion and growth - something to do with awareness, knowledge, and experience.
 * I'm also figuring out how to be less angry - something to do with frustration, compassion, breathing, and daily green flips.
-* I have three children - First Minion (10), Girl Twin (7) and Boy Twin (7).
+* I have three children - First Minion (11), Girl Twin (8) and Boy Twin (8).
